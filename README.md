@@ -14,4 +14,4 @@ If you need more technical support and development inquires, you can contact bel
 
 Telegram: [@dwlee918](https://t.me/@dwlee918)
 
-Twitter: [@derricklee918](https://x.com/derricklee918)
+Twitter: [@dwlee918](https://x.com/dwlee918)
